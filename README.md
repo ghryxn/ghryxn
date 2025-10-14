@@ -8,7 +8,7 @@ However, I'm mostly known for making Roblox videos on YouTube on an okay level. 
 I have over 480 subscribers on [YouTube](https://youtube.com/@jsxyrite) and you can call me
 ryxn, but you can call me xyr [old nickname]
 
-<img align="right" alt="ryxn" width="180" src="(https://github.com/ghryxn/ghryxn/blob/main/EEEEEEEEEE%20CAR.gif)" />
+<img align="right" alt="ryxn" width="180" src="https://github.com/ghryxn/ghryxn/blob/main/EEEEEEEEEE%20CAR.gif" />
 
 * 📚 regular student still in school
 * 🎮 develops games as a hobby
