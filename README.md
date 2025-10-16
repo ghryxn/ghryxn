@@ -17,11 +17,16 @@ ryxn, but you can call me xyr [old nickname]
 * 💾 owner of channel-code repository
 
 I enjoy **a lot lot lot** more hobbies that I enjoy, and I want nights to be longer sometimes.
-*I know that life goes fast for me but I really just want to enjoy life and be happy*
+*"the lot lot lot more hobbies = roblox roblox roblox"*
 
-### What's a video your very proud of?
-Most. I'm just glad that most of my videos were doing well and good which I've spent **a lot** of time on.
-<sub>*Hi, just a note. This README has been updated on: <strong>2:33 PM of 10-14-2025</strong></sub>
+### How long have you played Roblox?
+Since 2020, probably even older
+
+### What games do you like playing?
+Most probably Secret Universe and some other games
+
+
+<sub>*Hi, just a note. This README has been updated on: <strong>9:34 AM of 10-16-2025</strong></sub>
 
 <!--
 **ghryxn/ghryxn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
